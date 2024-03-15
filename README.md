@@ -6,7 +6,7 @@
 > [!IMPORTANT]
 > Marquen sus calendarios: la cita es el 14 de marzo a las 6:00 pm. ¡No se lo pierdan!
 
-# Desafiando Estadísticas: Toma el dato y elige el camino 💡
+# Desafiando Estadísticas: Toma el dato y elige el camino
 * [Descarga aqui las Slides del evento 📊](https://github.com/julianacastilloaraujo/BDG-Institute/files/14609121/BDG.-.14.de.marzo.pdf)
 * [Entra al Padlet Interactivo 🙌🏻](https://padlet.com/bdgpadlet/toma-el-dato-y-elige-el-camino-wmmkqmj1m7txa7al)
 
