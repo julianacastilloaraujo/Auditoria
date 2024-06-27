@@ -10,8 +10,6 @@
 * [Descarga aqui las Slides del evento 📊](https://github.com/julianacastilloaraujo/BDG-Institute/files/14609121/BDG.-.14.de.marzo.pdf)
 * [Entra al Padlet Interactivo 🙌🏻](https://padlet.com/bdgpadlet/toma-el-dato-y-elige-el-camino-wmmkqmj1m7txa7al)
 
-# Libros 📚 para iniciar tu ROL en data
-<img align="center" width="500" src="https://private-user-images.githubusercontent.com/96964513/313030433-d65e3acf-83ef-48a4-83ab-e6f782b16e47.png?
 # Redes sociales de Katerine 💃 y Juliana 🙋🏼‍♀️
 * [Katerine 📷 Instagram](https://www.instagram.com/katerinevach/?hl=es) &nbsp; &nbsp; [Juliana 📷 Instagram](https://www.instagram.com/julianacastilloaraujo/)
 * [Katerine 🐦 Twitter](https://twitter.com/kate_vach) &nbsp; &nbsp; &nbsp; [Juliana 🐦 Twitter](https://twitter.com/jcastilloaraujo)
